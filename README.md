@@ -11,3 +11,4 @@ I am Codit, or whatever you'd want to refer to me as.
 - I am a furry
 - I am a yumeshipper (I have too many characters to put here)
 - I am a proshipper and darkshipper. I use it as a means of coping from my current situation, so please be mindful
+- IF YOU ARE AN ANTI, JUST IWEC (interact with extreme caution) OR DNI. I DO NOT WANT YOU GUYS TO HARASS OR DO ANYTHING OF THOSE SORTS TO ME.
