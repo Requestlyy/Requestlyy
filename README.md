@@ -2,7 +2,6 @@
 
 I am Codit, or whatever you'd want to refer to me as.
 
-- I am a minor
 - Most of my basic information can be found on my strawpage
 - My fandoms include things like Homestuck, FNAF, Roblox, etc.
 - I am a transgender male
